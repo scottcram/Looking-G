@@ -1,0 +1,2 @@
+# Looking-G
+Just Learning
